@@ -103,12 +103,11 @@
     Brimstone](). The Wikipedia article for the album [Link
     Wray](https://en.wikipedia.org/wiki/Link_Wray_(album)) even mentions Swamp
     Rock as a genre and that "the change in style from his earlier work, the
-    album was poorly received by Link Wray's fan base.[1] Wray had anticipated
+    album was poorly received by Link Wray's fan base. Wray had anticipated
     this, and shortly before the album's release remarked, 'In a way I couldn't
     care less if the album didn't sell a single copy. We're happy with it and
     we've done it our way.'" maybe that's part of the appeal but the sound and
-    rhythm stands for itself.
-    
+    rhythm stands for itself.\
     I found a live cover by [Cub Koda & The
     Points](https://youtu.be/V-9DwnSMZH8) with a top comment by a user with the
     name _valdane8371_ who said: "I always suspected that the best Rock ‘n’ Roll
