@@ -67,8 +67,10 @@
   - [A Warning and some Notes](#a-warning-and-some-notes)
   - [Dedication](#dedication)
   - [Table of Contents](#table-of-contents)
-- [1960s](#1960s)
+- [1960s and 1970s](#1960s-and-1970s)
   - [1964](#1964)
+  - [1967](#1967)
+  - [1971](#1971)
   - [1975](#1975)
 - [1980s](#1980s)
   - [1981](#1981)
@@ -81,11 +83,38 @@
 
 ### 1964
 
-  * [The Kinks(https://en.wikipedia.org/wiki/The_Kinks)]: Hailed as an
+  * [The Kinks](https://en.wikipedia.org/wiki/The_Kinks): Hailed as an
     influential band for both Hard Rock and Heavy Metal because of an early use
     of a distorted guitar playing power chords on [You Really Got
     Me](https://en.wikipedia.org/wiki/You_Really_Got_Me). Enjoy a [live
     version](https://youtu.be/Eq_KQYVPadQ) from 1965.
+
+### 1967
+
+  * [Jefferson Airplane](https://en.wikipedia.org/wiki/Jefferson_Airplane)
+    played the Psychedelic and Acid Rock song [White
+    Rabbit](https://youtu.be/WANNqr-vcx0) in 1967. Quite a difference between
+    them ad the Kinks and the Beatles.
+
+### 1971
+
+  * [Link Wray](https://en.wikipedia.org/wiki/Link_Wray) released the album with
+    his name. One song in particular sparked my interest; [Fire and
+    Brimstone](). The Wikipedia article for the album [Link
+    Wray](https://en.wikipedia.org/wiki/Link_Wray_(album)) even mentions Swamp
+    Rock as a genre and that "the change in style from his earlier work, the
+    album was poorly received by Link Wray's fan base.[1] Wray had anticipated
+    this, and shortly before the album's release remarked, 'In a way I couldn't
+    care less if the album didn't sell a single copy. We're happy with it and
+    we've done it our way.'" maybe that's part of the appeal but the sound and
+    rhythm stands for itself.
+    
+    I found a live cover by [Cub Koda & The
+    Points](https://youtu.be/V-9DwnSMZH8) with a top comment by a user with the
+    name _valdane8371_ who said: "I always suspected that the best Rock ‘n’ Roll
+    performance ever had taken place in someone’s f**king basement in front of
+    seventeen people…now I’m sure.  Bonus points for the glorious absence of
+    subtlety."
 
 ### 1975
 
@@ -124,15 +153,24 @@
     Test](https://en.wikipedia.org/wiki/The_Old_Grey_Whistle_Test). The German
     musician [Herbert Grönemeyer] recorded a good [cover
     version](https://youtu.be/ms20CRIMfck?) in 2021.
-  * [Madness](https://en.wikipedia.org/wiki/Madness_(band)): [Our House](https://youtu.be/KwIe_sjKeAY)  
+  * [Madness](https://en.wikipedia.org/wiki/Madness_(band)): [Our
+    House](https://youtu.be/KwIe_sjKeAY)
+  * [The Cure](https://en.wikipedia.org/wiki/The_Cure): [Siamese
+    Twins](https://youtu.be/F9GwPDZ4cZ8) (Live In The Tempodrom, Berlin 2002).
 
 ### 1984
 
-  * [Talk Talk(https://en.wikipedia.org/wiki/Talk_Talk)]: I love [Mark
+  * [Talk Talk](https://en.wikipedia.org/wiki/Talk_Talk): I love [Mark
     Hollis'](https://en.wikipedia.org/wiki/Mark_Hollis) performance in the
     official video of [Such A Shame)](https://youtu.be/lLdvpFIPReA). It was
     released on the second studio album [It's My Life
     ](https://en.wikipedia.org/wiki/It%27s_My_Life_(album)).
+  * [Tears for Fears]: _Shout_ was released the a single for their second album
+    _Songs from the Big Chair_. Here we have the [official
+    video](https://youtu.be/Ye7FKc1JQe4) and 35 years later a [live
+    version](https://youtu.be/XnWY41GbLbA) from the Roskilde Festival. If you
+    look closely, you will see and hear that they kept the original drum machine
+    snare for this live performance.
 
 ### 1985
 
