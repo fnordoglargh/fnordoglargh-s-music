@@ -88,6 +88,19 @@
     of a distorted guitar playing power chords on [You Really Got
     Me](https://en.wikipedia.org/wiki/You_Really_Got_Me). Enjoy a [live
     version](https://youtu.be/Eq_KQYVPadQ) from 1965.
+  * [The Animals](https://en.wikipedia.org/wiki/The_Animals), an English rock
+    band, recorded and released [their version](https://youtu.be/4-43lLKaqBQ) of
+    the the folk song [The House of the Rising
+    Sun](https://en.wikipedia.org/wiki/The_House_of_the_Rising_Sun). It became a
+    timeless classic with many different interpretations.\
+    A superior version is from _The White Buffalo (with The Forest Rangers)_
+    which was arranged and performed for the finale of the fourth season of the
+    FX TV series [Sons of
+    Anarchy](https://en.wikipedia.org/wiki/Sons_of_Anarchy). The lyrics have
+    been adapted to mirror the plot of the TV series. The was no spoken dialogue
+    in the finale and the filmed scenes together with the music were one of the
+    greatest things on TV for us. I still think a more fitting title would have
+    been _House of the Rising **Son**_.
 
 ### 1967
 
