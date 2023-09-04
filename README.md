@@ -72,7 +72,9 @@
   - [1967](#1967)
   - [1971](#1971)
   - [1975](#1975)
+  - [1979](#1979)
 - [1980s](#1980s)
+  - [1980](#1980)
   - [1981](#1981)
   - [1982](#1982)
   - [1984](#1984)
@@ -138,6 +140,13 @@
     piece of art on the
     [Wikipedia](https://en.wikipedia.org/wiki/Bohemian_Rhapsody.)
 
+### 1979
+
+  * [Bauhaus](https://en.wikipedia.org/wiki/Bauhaus_(band)) recorded [Bela
+    Lugosi's Dead](https://youtu.be/Yy9h2q_dr9k) as their first ever recording.
+    "It is often considered the first gothic rock record." It "was recorded
+    'live in the studio' in a single take during a six-hour session".
+
 ## 1980s
 
   What a decade.
@@ -145,6 +154,16 @@
   Sound of drums in the 80s: [Gated Reverb](https://youtu.be/Bxz6jShW-3E). Which
   was discovered accidentally while _Peter Gabriel_ recorded the song _Intruder_
   for his third solo album. On drums, on request, _Phil Collins_. 
+
+### 1980
+
+  * [Joy Division](https://en.wikipedia.org/wiki/Joy_Division)'s non-album
+    single [Love Will Tear Us
+    Apart](https://en.wikipedia.org/wiki/Love_Will_Tear_Us_Apart) made a lasting
+    impression on the era. Here's the  [official
+    video](https://youtu.be/zuuObGsB0No). "Its lyrics were inspired by lead
+    singer Ian Curtis's marital problems and struggles with epilepsy. The single
+    was released the month after his suicide."
 
 ### 1981
 
@@ -173,7 +192,7 @@
 ### 1984
 
   * [Talk Talk](https://en.wikipedia.org/wiki/Talk_Talk): I love [Mark
-    Hollis'](https://en.wikipedia.org/wiki/Mark_Hollis) performance in the
+    Hollis](https://en.wikipedia.org/wiki/Mark_Hollis)' performance in the
     official video of [Such A Shame)](https://youtu.be/lLdvpFIPReA). It was
     released on the second studio album [It's My Life
     ](https://en.wikipedia.org/wiki/It%27s_My_Life_(album)).
