@@ -110,6 +110,12 @@
     played the Psychedelic and Acid Rock song [White
     Rabbit](https://youtu.be/WANNqr-vcx0) in 1967. Quite a difference between
     them ad the Kinks and the Beatles.
+  * [The Beatles](https://en.wikipedia.org/wiki/The_Beatles) released the
+    magnificent album _Sgt. Pepper's Lonely Hearts Club Band_ I mentioned in the
+    dedication. It's impossible to be fair to a longliving masterpiece so I'll
+    just pick my favorite song which is [A Day in the
+    Life](https://youtu.be/usNsCeOV4GM). If you never listened to the album,
+    it's worth it.
 
 ### 1971
 
@@ -139,6 +145,16 @@
     views on Youtube as of September 2023. More history about this legendary
     piece of art on the
     [Wikipedia](https://en.wikipedia.org/wiki/Bohemian_Rhapsody.)
+  * [Kraftwerk](https://en.wikipedia.org/wiki/Kraftwerk), a German electronic
+    band, released their fifth and "first purely electronic album"
+    [Radio-Activity](https://en.wikipedia.org/wiki/Radio-Activity). "All
+    releases of the album were bilingual, with lyrics in both English and
+    German." The [official video](https://youtu.be/NyXeJZJUFHE) is a good
+    example how music video started. Now compare that to a
+    [version](https://youtu.be/CfSdb9qq3kE) from 2017 _The Catalogue_. The
+    sparse lyrics were expanded over the years and also contained a reference to
+    the [Fukushima nuclear
+    disaster](https://en.wikipedia.org/wiki/Fukushima_nuclear_disaster).
 
 ### 1979
 
