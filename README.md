@@ -121,7 +121,7 @@
     them ad the Kinks and the Beatles.
   * [The Beatles](https://en.wikipedia.org/wiki/The_Beatles) released the
     magnificent album _Sgt. Pepper's Lonely Hearts Club Band_ I mentioned in the
-    dedication. It's impossible to be fair to a longliving masterpiece so I'll
+    dedication. It's impossible to be fair to a long-living masterpiece so I'll
     just pick my favorite song which is [A Day in the
     Life](https://youtu.be/usNsCeOV4GM). If you never listened to the album,
     it's worth it.
