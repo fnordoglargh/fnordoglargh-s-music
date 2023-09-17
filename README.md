@@ -92,6 +92,7 @@
   - [1984](#1984)
   - [1985](#1985)
   - [1986](#1986)
+  - [1987](#1987)
 
 ## 1960s and 1970s
 
@@ -308,4 +309,21 @@
     Touch](https://en.wikipedia.org/wiki/Invisible_Touch). At the hight of the
     cold war and near the end of Ronald Reagan's first term, the band released
     the comical video for [Land Of Confusion](https://youtu.be/TlBIa8z_Mts).
+
+### 1987
+
+  * [Roxette](https://en.wikipedia.org/wiki/Roxette), a pop-band from Sweden (I
+    always liked them better when performing as a rock band.) released the
+    soft-rock/pop single [It Must Have Been Love](). It became a number one hit
+    in the USA and a well-known song after its inclusion in the 1990 romantic
+    comedy [Pretty Woman](https://en.wikipedia.org/wiki/Pretty_woman) with Julia
+    Roberts and Richard Gere. You might watch the [Goodbye
+    Scene](https://youtu.be/WA4MKbZBoA8) from the movie again, and then rewatch
+    the whole movie.
+  * [Suzanne Vega](https://en.wikipedia.org/wiki/Suzanne_Vega) wrote the song
+    [Luka](https://youtu.be/VZt7J0iaUD0) which deals with child abuse. It's told
+    from the perspective of a boy, talking to a person living in the apartment
+    below, pleading, not to ask questions and using tell-tale arguments of a
+    victim what he would say if asked. Only in 2023 "she told German radio
+    Station Bayern 2 the song is about her own experience with physical abuse."
 
