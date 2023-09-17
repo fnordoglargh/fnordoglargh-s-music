@@ -219,7 +219,9 @@
     musician [Herbert Grönemeyer] recorded a good [cover
     version](https://youtu.be/ms20CRIMfck?) in 2021.
   * [Madness](https://en.wikipedia.org/wiki/Madness_(band)): [Our
-    House](https://youtu.be/KwIe_sjKeAY)
+    House](https://youtu.be/KwIe_sjKeAY) is maybe one of the songs one could use
+    to explain what ska is (even though there are other influences) to people
+    who never heard the genres name.
   * [The Cure](https://en.wikipedia.org/wiki/The_Cure): [Siamese
     Twins](https://youtu.be/F9GwPDZ4cZ8) (Live In The Tempodrom, Berlin 2002).
 
