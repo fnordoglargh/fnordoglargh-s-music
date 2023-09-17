@@ -42,7 +42,8 @@
 
   * **Warning**: Although I'm trying to use a neutral language here, text
     quotes, song or album titles and the topics explored in the linked songs and
-    videos are likely _not safe for work_ (NSFW).
+    videos are likely _[not safe for
+    work](https://en.wikipedia.org/wiki/Not_safe_for_work)_ (NSFW).
   * Some sections in this page mention bands and artists in chronological order.
     You can expect that some bands or artists show up multiple times.
   * Some genres are not important or interesting for me. In general you can
