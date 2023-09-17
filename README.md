@@ -82,6 +82,7 @@
   - [1968](#1968)
   - [1971](#1971)
   - [1975](#1975)
+  - [1976](#1976)
   - [1979](#1979)
 - [1980s](#1980s)
   - [1980](#1980)
@@ -173,6 +174,19 @@
     sparse lyrics were expanded over the years and also contained a reference to
     the [Fukushima nuclear
     disaster](https://en.wikipedia.org/wiki/Fukushima_nuclear_disaster).
+
+### 1976
+
+  * [The Eagles](https://en.wikipedia.org/wiki/Eagles_(band)) wrote rock history
+    with their album [Hotel
+    California](https://en.wikipedia.org/wiki/Hotel_California_(Eagles_album)).
+    The Eagles performed the [title track](https://youtu.be/09839DpTctU) (here
+    in a live version from 1977) from the album well over 1000 times.
+  * [KISS](https://en.wikipedia.org/wiki/Kiss_(band)) (the hottest band in
+    world) released their fourth studio album
+    _[Destroyer](https://en.wikipedia.org/wiki/Destroyer_(Kiss_album))_. One of
+    the songs of that album became a live staple for the band: [Detroit Rock
+    City](https://youtu.be/fTqLf1A-Q-4) (live version from 2006).
 
 ### 1979
 
