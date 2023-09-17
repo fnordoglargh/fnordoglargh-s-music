@@ -273,7 +273,23 @@
   * [Talking Heads](https://en.wikipedia.org/wiki/Talking_Heads): The album
     [Little Creatures](https://en.wikipedia.org/wiki/Little_Creatures) brought
     the successful single [Road to
-    Nowhere](https://www.youtube.com/watch?v=LQiOA7euaYA). 
+    Nowhere](https://www.youtube.com/watch?v=LQiOA7euaYA).
+  * [Sting](https://en.wikipedia.org/wiki/Sting_(musician)) released his debut
+    solo album and the song
+    [Russians](https://en.wikipedia.org/wiki/Russians_(song)) ([official
+    video]((https://youtu.be/wHylQRVN2Qs))) on it. "The song is a commentary and
+    plea that criticizes the then-dominant Cold War foreign policy and doctrine
+    of mutual assured destruction (MAD) by the United States and the then
+    existing Soviet Union.\
+    "Sting re-recorded an [acoustic
+    version](https://youtu.be/6w3037nq23o) of the song in March 2022, during the
+    [2022 Russian invasion of
+    Ukraine](https://en.wikipedia.org/wiki/2022_Russian_invasion_of_Ukraine),
+    with proceeds going to humanitarian and medical aid in Ukraine. In a
+    statement, he said that he 'never thought [the song] would be relevant
+    again. But, in the light of one man’s bloody and woefully misguided decision
+    to invade a peaceful, unthreatening neighbor, the song is, once again, a
+    plea for our common humanity.'"
 
 ### 1986
 
