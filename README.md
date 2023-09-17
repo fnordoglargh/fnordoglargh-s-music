@@ -79,6 +79,7 @@
 - [1960s and 1970s](#1960s-and-1970s)
   - [1964](#1964)
   - [1967](#1967)
+  - [1968](#1968)
   - [1971](#1971)
   - [1975](#1975)
   - [1979](#1979)
@@ -125,6 +126,14 @@
     just pick my favorite song which is [A Day in the
     Life](https://youtu.be/usNsCeOV4GM). If you never listened to the album,
     it's worth it.
+
+### 1968
+
+  * [Aretha Franklin](https://en.wikipedia.org/wiki/Aretha_Franklin) wrote and
+    recorded the soul and funk song "Think" which is still relevant today.
+    Arguably because of an unforgettable [version](https://youtu.be/RTXszRHc0qs)
+    in the 1980 movie [The Blues
+    Brothers](https://en.wikipedia.org/wiki/The_Blues_Brothers_(film)).
 
 ### 1971
 
