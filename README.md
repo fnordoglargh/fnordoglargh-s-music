@@ -88,6 +88,7 @@
   - [1980](#1980)
   - [1981](#1981)
   - [1982](#1982)
+  - [1983](#1983)
   - [1984](#1984)
   - [1985](#1985)
   - [1986](#1986)
@@ -238,6 +239,20 @@
     who never heard the genres name.
   * [The Cure](https://en.wikipedia.org/wiki/The_Cure): [Siamese
     Twins](https://youtu.be/F9GwPDZ4cZ8) (Live In The Tempodrom, Berlin 2002).
+
+### 1983
+
+  * [Nena](https://en.wikipedia.org/wiki/Nena) recorded _99 Red Balloons_. There
+    are two official videos; one in [German](https://youtu.be/Fpu5a0Bl8eY) and
+    one in [English](https://youtu.be/hiwgOWo7mDc). It became in a No. 1 hit in
+    several countries and "is one of the best-known German rock songs in many
+    parts of the world." The original German version tells an [anti war
+    story](https://en.wikipedia.org/wiki/99_Luftballons#Lyrics).
+  * [The Police](https://en.wikipedia.org/wiki/The_Police), an English rock band
+    band, released [Every Breath You Take](https://youtu.be/OMOGaugKpzs)
+    (official video, [2008 Live Version](https://youtu.be/wdS-jpFgRo4) if that
+    is more to your liking). It is often mistaken to be a love song, but the
+    perspective is of a possessive lover (aka stalker). 
 
 ### 1984
 
