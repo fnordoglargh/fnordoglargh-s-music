@@ -48,6 +48,14 @@
     You can expect that some bands or artists show up multiple times.
   * Some genres are not important or interesting for me. In general you can
     assume that what is listed here has significance for me or musical history.
+  * The starting page (you are reading right now) is limited to one entry per
+    artist or band. Otherwise it could be even more one-sided as it already is.
+    Don't worry, that's going to change in the branching pages. The composition
+    of the main page focuses on pop and rock music with a few subtle (of not)
+    nods to other genres we're going to visit later.
+  * With few exception. the bands and solo performers on this list wrote their
+    own material. It becomes difficult (for me) to distinguish writers and bands
+    when it comes to hip-hop.
 
 ### Dedication
 
