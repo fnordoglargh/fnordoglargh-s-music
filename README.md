@@ -349,4 +349,18 @@
     below, pleading, not to ask questions and using tell-tale arguments of a
     victim what he would say if asked. Only in 2023 "she told German radio
     Station Bayern 2 the song is about her own experience with physical abuse."
+  * The English electronic music band [Depeche
+    Mode](https://en.wikipedia.org/wiki/Depeche_Mode) was already a successful
+    and had a large and dedicated fan base when they released _Never Let Me Down
+    Again_ on their 1987 album _Music for the Masses_. It is not a love song but
+    about drug use. It must have been around that time that I heard the band's
+    name for the first time. The brother  In the [official
+    video](https://youtu.be/snILjFUkk_A), singer Dave Gahan drives a 1957 BMW
+    Isetta. The many different live versions show the development from a sound
+    not very different from the studio version (here from the record breaking
+    and legendary concert at the [Rose Bowl in Pasadena
+    1988](https://youtu.be/8zMd90cMQdQ)) to one being performed by a band
+    ([Paris 2001](https://youtu.be/6BysDRGDns0) or [Barcelona
+    2009](https://youtu.be/3hULmE-dCyM) or [Barcelona
+    2023](https://youtu.be/dBimYtz6aHQ&t=5360s)).
 
