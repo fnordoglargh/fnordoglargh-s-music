@@ -285,12 +285,12 @@
     official video of [Such A Shame)](https://youtu.be/lLdvpFIPReA). It was
     released on the second studio album [It's My Life
     ](https://en.wikipedia.org/wiki/It%27s_My_Life_(album)).
-  * [Tears for Fears]: _Shout_ was released the a single for their second album
-    _Songs from the Big Chair_. Here we have the [official
-    video](https://youtu.be/Ye7FKc1JQe4) and 35 years later a [live
-    version](https://youtu.be/XnWY41GbLbA) from the Roskilde Festival. If you
-    look closely, you will see and hear that they kept the original drum machine
-    snare for this live performance.
+  * [Tears for Fears](https://en.wikipedia.org/wiki/Tears_for_Fears): _Shout_
+    was released the a single for their second album _Songs from the Big Chair_.
+    Here we have the [official video](https://youtu.be/Ye7FKc1JQe4) and 35 years
+    later a [live version](https://youtu.be/XnWY41GbLbA) from the Roskilde
+    Festival. If you look and listen closely, you will see and hear that they
+    kept the original drum machine snare for this live performance.
 
 ### 1985
 
