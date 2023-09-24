@@ -78,6 +78,7 @@
   - [Table of Contents](#table-of-contents)
 - [1960s and 1970s](#1960s-and-1970s)
   - [1964](#1964)
+  - [1965](#1965)
   - [1967](#1967)
   - [1968](#1968)
   - [1971](#1971)
@@ -116,6 +117,28 @@
     in the finale and the filmed scenes together with the music were one of the
     greatest things on TV for us. I still think a more fitting title would have
     been _House of the Rising **Son**_.
+
+### 1965
+
+  * [Gloria Jones](https://en.wikipedia.org/wiki/Gloria_Jones) first recorded
+    [Tainted Love](https://en.wikipedia.org/wiki/Tainted_Love) and in 1964 and
+    released it in 1965. It was written and produced for her as a B-Side of an
+    unsuccessful single. Only after it gained underground popularity in the UK's
+    club scene. Gloria re-recorded _Tainted Love_ again in 1976, but this
+    version also failed to chart.There's a nice [edited
+    video](https://youtu.be/EH4yq-goqiA) and a short video of the [story behind
+    the song](https://youtu.be/ViWAVwY7LtU) in Gloria's own words.\
+    Through the above mentioned popularity of the song, the English
+    vocal-and-synth duo [Soft Cell](https://en.wikipedia.org/wiki/Soft_Cell)
+    knew about the song.  They recorded [their own
+    version](https://youtu.be/XZVpR3Pk-r8) in 1981 which became a hugely popular
+    one-hit wonder. Soft Cell's version is arguable the one most people
+    recognize.\
+    Other versions:
+    * [Scorpions](https://youtu.be/IQV9Cpm9jLQ) (a German hard rock band) from
+      the 2011 [Comeblack](https://en.wikipedia.org/wiki/Comeblack).
+    * [Broken Peach](https://youtu.be/Q45yicposyI) (Halloween Special) a cover
+      band from Spain.
 
 ### 1967
 
