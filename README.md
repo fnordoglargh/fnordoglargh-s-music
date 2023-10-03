@@ -22,11 +22,11 @@
 
   I pondered the ideas of playlists, but you won't get as many cool live
   versions e.g. on Spotify. And as of 2023 it also lacks a commentary feature.
-  Here I can express myself. On Spotify you can find a [black metal
-  playlist](https://open.spotify.com/playlist/1ZSEFfBTPuhOt2V4CQmtAO) that I
-  made as challenge for myself: Use only one track per band. That was necessary
-  because some of the most liked (Black) Metal playlists simply added whole
-  albums which is unimaginative and boring.
+  Here I can express myself and add commentary. On Spotify you can find a [black
+  metal playlist](https://open.spotify.com/playlist/1ZSEFfBTPuhOt2V4CQmtAO) that
+  I made as challenge for myself: Use only one track per band. That was
+  necessary because some of the most liked (Black) Metal playlists simply added
+  whole albums which is unimaginative and boring.
 
   With a few exceptions this is a personal best-of series of artists whose work
   I admire and stuff I love and often listen to.
@@ -56,6 +56,8 @@
   * With few exception. the bands and solo performers on this list wrote their
     own material. It becomes difficult (for me) to distinguish writers and bands
     when it comes to hip-hop.
+  * We're not starting with the "hard stuff" right away and stay in the domain
+    of relatively friendly mainstream pop and rock music.
 
 ### Dedication
 
