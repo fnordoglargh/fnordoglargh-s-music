@@ -102,18 +102,17 @@
 ### 1964
 
   * [The Kinks](https://en.wikipedia.org/wiki/The_Kinks): Hailed as an
-    influential band for both Hard Rock and Heavy Metal because of an early use
-    of a distorted guitar playing power chords on [You Really Got
+    influential band from England for both Hard Rock and Heavy Metal because of
+    an early use of a distorted guitar playing power chords on [You Really Got
     Me](https://en.wikipedia.org/wiki/You_Really_Got_Me). Enjoy a [live
     version](https://youtu.be/Eq_KQYVPadQ) from 1965.
   * [The Animals](https://en.wikipedia.org/wiki/The_Animals), an English rock
     band, recorded and released [their version](https://youtu.be/4-43lLKaqBQ) of
     the the folk song [The House of the Rising
     Sun](https://en.wikipedia.org/wiki/The_House_of_the_Rising_Sun). It became a
-    timeless classic with many different interpretations.\
-    A superior version is from _The White Buffalo (with The Forest Rangers)_
-    which was arranged and performed for the finale of the fourth season of the
-    FX TV series [Sons of
+    timeless classic with many different interpretations.\ A superior version is
+    from _The White Buffalo (with The Forest Rangers)_ which was arranged and
+    performed for the finale of the fourth season of the FX TV series [Sons of
     Anarchy](https://en.wikipedia.org/wiki/Sons_of_Anarchy). The lyrics have
     been adapted to mirror the plot of the TV series. The was no spoken dialogue
     in the finale and the filmed scenes together with the music were one of the
@@ -122,21 +121,20 @@
 
 ### 1965
 
-  * [Gloria Jones](https://en.wikipedia.org/wiki/Gloria_Jones) first recorded
-    [Tainted Love](https://en.wikipedia.org/wiki/Tainted_Love) and in 1964 and
-    released it in 1965. It was written and produced for her as a B-Side of an
+  * The American Singer [Gloria
+    Jones](https://en.wikipedia.org/wiki/Gloria_Jones) first recorded [Tainted
+    Love](https://en.wikipedia.org/wiki/Tainted_Love) and in 1964 and released
+    it in 1965. It was written and produced for her as a B-Side of an
     unsuccessful single. Only after it gained underground popularity in the UK's
     club scene. Gloria re-recorded _Tainted Love_ again in 1976, but this
     version also failed to chart.There's a nice [edited
     video](https://youtu.be/EH4yq-goqiA) and a short video of the [story behind
-    the song](https://youtu.be/ViWAVwY7LtU) in Gloria's own words.\
-    Through the above mentioned popularity of the song, the English
-    vocal-and-synth duo [Soft Cell](https://en.wikipedia.org/wiki/Soft_Cell)
-    knew about the song.  They recorded [their own
-    version](https://youtu.be/XZVpR3Pk-r8) in 1981 which became a hugely popular
-    one-hit wonder. Soft Cell's version is arguable the one most people
-    recognize.\
-    Other versions:
+    the song](https://youtu.be/ViWAVwY7LtU) in Gloria's own words.\ Through the
+    above mentioned popularity of the song, the English vocal-and-synth duo
+    [Soft Cell](https://en.wikipedia.org/wiki/Soft_Cell) knew about the song.
+    They recorded [their own version](https://youtu.be/XZVpR3Pk-r8) in 1981
+    which became a hugely popular one-hit wonder. Soft Cell's version is
+    arguable the one most people recognize.\ Other versions:
     * [Scorpions](https://youtu.be/IQV9Cpm9jLQ) (a German hard rock band) from
       the 2011 [Comeblack](https://en.wikipedia.org/wiki/Comeblack).
     * [Broken Peach](https://youtu.be/Q45yicposyI) (Halloween Special) a cover
@@ -144,16 +142,17 @@
 
 ### 1967
 
-  * [Jefferson Airplane](https://en.wikipedia.org/wiki/Jefferson_Airplane)
-    played the Psychedelic and Acid Rock song [White
-    Rabbit](https://youtu.be/WANNqr-vcx0) in 1967. Quite a difference between
-    them ad the Kinks and the Beatles.
+  * The American rock band [Jefferson
+    Airplane](https://en.wikipedia.org/wiki/Jefferson_Airplane) played the
+    Psychedelic and Acid Rock song [White Rabbit](https://youtu.be/WANNqr-vcx0)
+    in 1967. Quite a difference between them ad the Kinks and the Beatles.
   * [The Beatles](https://en.wikipedia.org/wiki/The_Beatles) released the
     magnificent album _Sgt. Pepper's Lonely Hearts Club Band_ I mentioned in the
     dedication. It's impossible to be fair to a long-living masterpiece so I'll
     just pick my favorite song which is [A Day in the
     Life](https://youtu.be/usNsCeOV4GM). If you never listened to the album,
-    it's worth it.
+    it's worth doing it now. If you're really adventurous, take the ultimate
+    edition with outtakes to hear, how it all came together. 
 
 ### 1968
 
@@ -165,17 +164,17 @@
 
 ### 1971
 
-  * [Link Wray](https://en.wikipedia.org/wiki/Link_Wray) released the album with
-    his name. One song in particular sparked my interest; [Fire and
-    Brimstone](). The Wikipedia article for the album [Link
+  * [Link Wray](https://en.wikipedia.org/wiki/Link_Wray) released the
+    self-titled album. "He was an American guitarist, songwriter, and vocalist
+    who became popular in the late 1950s." One song in particular sparked my
+    interest; [Fire and Brimstone](). The Wikipedia article for the album [Link
     Wray](https://en.wikipedia.org/wiki/Link_Wray_(album)) even mentions Swamp
     Rock as a genre and that "the change in style from his earlier work, the
     album was poorly received by Link Wray's fan base. Wray had anticipated
     this, and shortly before the album's release remarked, 'In a way I couldn't
     care less if the album didn't sell a single copy. We're happy with it and
     we've done it our way.'" maybe that's part of the appeal but the sound and
-    rhythm stands for itself.\
-    I found a live cover by [Cub Koda & The
+    rhythm stands for itself.\ I found a live cover by [Cub Koda & The
     Points](https://youtu.be/V-9DwnSMZH8) with a top comment by a user with the
     name _valdane8371_ who said: "I always suspected that the best Rock ‘n’ Roll
     performance ever had taken place in someone’s f**king basement in front of
@@ -184,12 +183,12 @@
 
 ### 1975
 
-  * [Queen](https://en.wikipedia.org/wiki/Queen_(band)) released [Bohemian
-    Rhapsody](https://youtu.be/fJ9rUzIMcZQ) from the album _A Night at the
-    Opera_. "Despite being twice as long as the average length of singles during
-    the 1970s, the song became immensely popular worldwide." It has 1.6 billion
-    views on Youtube as of September 2023. More history about this legendary
-    piece of art on the
+  * The English rock band [Queen](https://en.wikipedia.org/wiki/Queen_(band))
+    released [Bohemian Rhapsody](https://youtu.be/fJ9rUzIMcZQ) from the album _A
+    Night at the Opera_. "Despite being twice as long as the average length of
+    singles during the 1970s, the song became immensely popular worldwide." It
+    has 1.6 billion views on Youtube as of September 2023. More history about
+    this legendary piece of art on the
     [Wikipedia](https://en.wikipedia.org/wiki/Bohemian_Rhapsody.)
   * [Kraftwerk](https://en.wikipedia.org/wiki/Kraftwerk), a German electronic
     band, released their fifth and "first purely electronic album"
@@ -204,12 +203,13 @@
 
 ### 1976
 
-  * [The Eagles](https://en.wikipedia.org/wiki/Eagles_(band)) wrote rock history
-    with their album [Hotel
+  * [The Eagles](https://en.wikipedia.org/wiki/Eagles_(band)), an American rock
+    band, wrote rock history with their album [Hotel
     California](https://en.wikipedia.org/wiki/Hotel_California_(Eagles_album)).
     The Eagles performed the [title track](https://youtu.be/09839DpTctU) (here
     in a live version from 1977) from the album well over 1000 times.
-  * [KISS](https://en.wikipedia.org/wiki/Kiss_(band)) (the hottest band in
+  * The american hard rock band
+    [KISS](https://en.wikipedia.org/wiki/Kiss_(band)) (the hottest band in
     world) released their fourth studio album
     _[Destroyer](https://en.wikipedia.org/wiki/Destroyer_(Kiss_album))_. One of
     the songs of that album became a live staple for the band: [Detroit Rock
@@ -217,10 +217,11 @@
 
 ### 1979
 
-  * [Bauhaus](https://en.wikipedia.org/wiki/Bauhaus_(band)) recorded [Bela
-    Lugosi's Dead](https://youtu.be/Yy9h2q_dr9k) as their first ever recording.
-    "It is often considered the first gothic rock record." It "was recorded
-    'live in the studio' in a single take during a six-hour session".
+  * [Bauhaus](https://en.wikipedia.org/wiki/Bauhaus_(band)) (an English rock
+    band formed only the year before) recorded [Bela Lugosi's
+    Dead](https://youtu.be/Yy9h2q_dr9k) as their first ever recording.  "It is
+    often considered the first gothic rock record." It "was recorded 'live in
+    the studio' in a single take during a six-hour session".
 
 ## 1980s
 
@@ -232,10 +233,11 @@
 
 ### 1980
 
-  * [Joy Division](https://en.wikipedia.org/wiki/Joy_Division)'s non-album
-    single [Love Will Tear Us
+  * The English rock band [Joy
+    Division](https://en.wikipedia.org/wiki/Joy_Division)'s non-album single
+    [Love Will Tear Us
     Apart](https://en.wikipedia.org/wiki/Love_Will_Tear_Us_Apart) made a lasting
-    impression on the era. Here's the  [official
+    impression on the era. Here's the [official
     video](https://youtu.be/zuuObGsB0No). "Its lyrics were inspired by lead
     singer Ian Curtis's marital problems and struggles with epilepsy. The single
     was released the month after his suicide."
@@ -282,11 +284,11 @@
 
 ### 1984
 
-  * [Talk Talk](https://en.wikipedia.org/wiki/Talk_Talk): I love [Mark
+  * [Talk Talk](https://en.wikipedia.org/wiki/Talk_Talk): I simply love [Mark
     Hollis](https://en.wikipedia.org/wiki/Mark_Hollis)' performance in the
-    official video of [Such A Shame)](https://youtu.be/lLdvpFIPReA). It was
-    released on the second studio album [It's My Life
-    ](https://en.wikipedia.org/wiki/It%27s_My_Life_(album)).
+    official video of [Such A Shame](https://youtu.be/lLdvpFIPReA). It was
+    released on the second studio album
+    [It's My Life](https://en.wikipedia.org/wiki/It%27s_My_Life_(album)). The song was "inspired by Luke Rhinehart's The Dice Man, one of composer Mark Hollis' favorite books. When asked what drove him to respond to Rhinehart's book, Hollis replied, 'A good book, not a lifestyle I'd recommend.'"
   * [Tears for Fears](https://en.wikipedia.org/wiki/Tears_for_Fears): _Shout_
     was released the a single for their second album _Songs from the Big Chair_.
     Here we have the [official video](https://youtu.be/Ye7FKc1JQe4) and 35 years
@@ -296,11 +298,11 @@
 
 ### 1985
 
-  * [Talking Heads](https://en.wikipedia.org/wiki/Talking_Heads): The album
+  * The American rock band [Talking Heads](https://en.wikipedia.org/wiki/Talking_Heads) released the album
     [Little Creatures](https://en.wikipedia.org/wiki/Little_Creatures) brought
     the successful single [Road to
     Nowhere](https://www.youtube.com/watch?v=LQiOA7euaYA).
-  * [Sting](https://en.wikipedia.org/wiki/Sting_(musician)) released his debut
+  * [Sting](https://en.wikipedia.org/wiki/Sting_(musician)), an English Musician, released his debut
     solo album and the song
     [Russians](https://en.wikipedia.org/wiki/Russians_(song)) ([official
     video]((https://youtu.be/wHylQRVN2Qs))) on it. "The song is a commentary and
@@ -319,11 +321,11 @@
 
 ### 1986
 
-  * [Peter Gabriel](https://en.wikipedia.org/wiki/Peter_Gabriel) released his
+  * [Peter Gabriel](https://en.wikipedia.org/wiki/Peter_Gabriel), an English singer and songwriter, released his
     fifth solo album [So](https://en.wikipedia.org/wiki/So_(album)) and with it
     one of his biggest hits [Sledgehammer](https://youtu.be/OJWJE0x7T4Q). This
     video itself is special in a time before widespread computer animation,
-    everything was done by hand. The Stop motion and claymation is still
+    everything was done by hand. The stop motion and claymation is still
     something to look at today. The song is played live often. Like this [live
     version](https://youtu.be/_KSxRj9YhG8) from the Growing Up Tour from 2003.
     Fantastic bassline played by [Tony
@@ -331,7 +333,7 @@
     backing vocals.
   * [Genesis](https://en.wikipedia.org/wiki/Genesis_(band)), Peter Gabriel's
     former band released their thirteenth album [Invisible
-    Touch](https://en.wikipedia.org/wiki/Invisible_Touch). At the hight of the
+    Touch](https://en.wikipedia.org/wiki/Invisible_Touch). At the height of the
     cold war and near the end of Ronald Reagan's first term, the band released
     the comical video for [Land Of Confusion](https://youtu.be/TlBIa8z_Mts).
 
@@ -345,7 +347,7 @@
     Roberts and Richard Gere. You might watch the [Goodbye
     Scene](https://youtu.be/WA4MKbZBoA8) from the movie again, and then rewatch
     the whole movie.
-  * [Suzanne Vega](https://en.wikipedia.org/wiki/Suzanne_Vega) wrote the song
+  * The American singer-songwriter [Suzanne Vega](https://en.wikipedia.org/wiki/Suzanne_Vega) wrote the song
     [Luka](https://youtu.be/VZt7J0iaUD0) which deals with child abuse. It's told
     from the perspective of a boy, talking to a person living in the apartment
     below, pleading, not to ask questions and using tell-tale arguments of a
