@@ -96,6 +96,7 @@
   - [1985](#1985)
   - [1986](#1986)
   - [1987](#1987)
+- [Where to go from here?](#where-to-go-from-here)
 
 ## 1960s and 1970s
 
@@ -368,3 +369,8 @@
     2009](https://youtu.be/3hULmE-dCyM) or [Barcelona
     2023](https://youtu.be/dBimYtz6aHQ&t=5360s)).
 
+## Where to go from here?
+
+  From here we are going to explore different genres and individual artists.
+
+  * [Electronic music](electronic.md)
