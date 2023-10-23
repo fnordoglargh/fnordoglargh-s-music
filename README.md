@@ -374,3 +374,4 @@
   From here we are going to explore different genres and individual artists.
 
   * [Electronic music](electronic.md)
+  * [Stay a While and Listen... and Have a Beer](stay_a_while.md)
