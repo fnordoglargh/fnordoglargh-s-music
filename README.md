@@ -288,8 +288,11 @@
   * [Talk Talk](https://en.wikipedia.org/wiki/Talk_Talk): I simply love [Mark
     Hollis](https://en.wikipedia.org/wiki/Mark_Hollis)' performance in the
     official video of [Such A Shame](https://youtu.be/lLdvpFIPReA). It was
-    released on the second studio album
-    [It's My Life](https://en.wikipedia.org/wiki/It%27s_My_Life_(album)). The song was "inspired by Luke Rhinehart's The Dice Man, one of composer Mark Hollis' favorite books. When asked what drove him to respond to Rhinehart's book, Hollis replied, 'A good book, not a lifestyle I'd recommend.'"
+    released on the second studio album [It's My
+    Life](https://en.wikipedia.org/wiki/It%27s_My_Life_(album)). The song was
+    "inspired by Luke Rhinehart's The Dice Man, one of composer Mark Hollis'
+    favorite books. When asked what drove him to respond to Rhinehart's book,
+    Hollis replied, 'A good book, not a lifestyle I'd recommend.'"
   * [Tears for Fears](https://en.wikipedia.org/wiki/Tears_for_Fears): _Shout_
     was released the a single for their second album _Songs from the Big Chair_.
     Here we have the [official video](https://youtu.be/Ye7FKc1JQe4) and 35 years
@@ -299,18 +302,18 @@
 
 ### 1985
 
-  * The American rock band [Talking Heads](https://en.wikipedia.org/wiki/Talking_Heads) released the album
+  * The American rock band [Talking
+    Heads](https://en.wikipedia.org/wiki/Talking_Heads) released the album
     [Little Creatures](https://en.wikipedia.org/wiki/Little_Creatures) brought
     the successful single [Road to
     Nowhere](https://www.youtube.com/watch?v=LQiOA7euaYA).
-  * [Sting](https://en.wikipedia.org/wiki/Sting_(musician)), an English Musician, released his debut
-    solo album and the song
+  * [Sting](https://en.wikipedia.org/wiki/Sting_(musician)), an English
+    Musician, released his debut solo album and the song
     [Russians](https://en.wikipedia.org/wiki/Russians_(song)) ([official
     video]((https://youtu.be/wHylQRVN2Qs))) on it. "The song is a commentary and
     plea that criticizes the then-dominant Cold War foreign policy and doctrine
     of mutual assured destruction (MAD) by the United States and the then
-    existing Soviet Union.\
-    "Sting re-recorded an [acoustic
+    existing Soviet Union.\ "Sting re-recorded an [acoustic
     version](https://youtu.be/6w3037nq23o) of the song in March 2022, during the
     [2022 Russian invasion of
     Ukraine](https://en.wikipedia.org/wiki/2022_Russian_invasion_of_Ukraine),
@@ -322,12 +325,13 @@
 
 ### 1986
 
-  * [Peter Gabriel](https://en.wikipedia.org/wiki/Peter_Gabriel), an English singer and songwriter, released his
-    fifth solo album [So](https://en.wikipedia.org/wiki/So_(album)) and with it
-    one of his biggest hits [Sledgehammer](https://youtu.be/OJWJE0x7T4Q). This
-    video itself is special in a time before widespread computer animation,
-    everything was done by hand. The stop motion and claymation is still
-    something to look at today. The song is played live often. Like this [live
+  * [Peter Gabriel](https://en.wikipedia.org/wiki/Peter_Gabriel), an English
+    singer and songwriter, released his fifth solo album
+    [So](https://en.wikipedia.org/wiki/So_(album)) and with it one of his
+    biggest hits [Sledgehammer](https://youtu.be/OJWJE0x7T4Q). This video itself
+    is special in a time before widespread computer animation, everything was
+    done by hand. The stop motion and claymation is still something to look at
+    today. The song is played live often. Like this [live
     version](https://youtu.be/_KSxRj9YhG8) from the Growing Up Tour from 2003.
     Fantastic bassline played by [Tony
     Levin](https://en.wikipedia.org/wiki/Tony_Levin) and his daughter Melanie on
@@ -348,7 +352,8 @@
     Roberts and Richard Gere. You might watch the [Goodbye
     Scene](https://youtu.be/WA4MKbZBoA8) from the movie again, and then rewatch
     the whole movie.
-  * The American singer-songwriter [Suzanne Vega](https://en.wikipedia.org/wiki/Suzanne_Vega) wrote the song
+  * The American singer-songwriter [Suzanne
+    Vega](https://en.wikipedia.org/wiki/Suzanne_Vega) wrote the song
     [Luka](https://youtu.be/VZt7J0iaUD0) which deals with child abuse. It's told
     from the perspective of a boy, talking to a person living in the apartment
     below, pleading, not to ask questions and using tell-tale arguments of a
@@ -371,7 +376,8 @@
 
 ## Where to go from here?
 
-  From here we are going to explore different genres, potpourris and individual artists.
+  From here we are going to explore different genres, potpourris and individual
+  artists.
 
   * [Electronic music](electronic.md)
   * [Stay a While and Listen... and Have a Beer](stay_a_while.md)
