@@ -323,6 +323,11 @@
     again. But, in the light of one man’s bloody and woefully misguided decision
     to invade a peaceful, unthreatening neighbor, the song is, once again, a
     plea for our common humanity.'
+  * The British rock band [Dire
+    Straits](https://en.wikipedia.org/wiki/Dire_Straits) released their fifth
+    studio album _Brothers in Arms_ and with it the single _Money for Nothing_.
+    The [official music video](https://youtu.be/wTP2RUD_cL0) is one of the first
+    to use early computer animation.
 
 ### 1986
 
