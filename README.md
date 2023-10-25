@@ -313,7 +313,8 @@
     video]((https://youtu.be/wHylQRVN2Qs))) on it. "The song is a commentary and
     plea that criticizes the then-dominant Cold War foreign policy and doctrine
     of mutual assured destruction (MAD) by the United States and the then
-    existing Soviet Union.\ "Sting re-recorded an [acoustic
+    existing Soviet Union.
+    > Sting re-recorded an [acoustic
     version](https://youtu.be/6w3037nq23o) of the song in March 2022, during the
     [2022 Russian invasion of
     Ukraine](https://en.wikipedia.org/wiki/2022_Russian_invasion_of_Ukraine),
@@ -321,7 +322,7 @@
     statement, he said that he 'never thought [the song] would be relevant
     again. But, in the light of one man’s bloody and woefully misguided decision
     to invade a peaceful, unthreatening neighbor, the song is, once again, a
-    plea for our common humanity.'"
+    plea for our common humanity.'
 
 ### 1986
 
