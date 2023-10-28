@@ -34,7 +34,7 @@
 ## Paranoid London
 
   A British duo (consisting of Quinn Whalley and Gerardo Delgado) which
-  "redefined acid house"[^1] in 2007 with their album _Eating Glue. Enjoy a
+  "redefined acid house"[^1] in 2007 with their album _Eating Glue_. Enjoy a
   fantastic [live performance](https://youtu.be/NIpts9B9U3Y) with Mutado Pintado
   on the mic with visuals by Bob Jaroc.
 
