@@ -329,6 +329,12 @@
     studio album _Brothers in Arms_ and with it the single _Money for Nothing_.
     The [official music video](https://youtu.be/wTP2RUD_cL0) is one of the first
     to use early computer animation.
+  * a-ha is a Norwegian synth-pop band formed in Oslo in 1982. [Take On
+    Me](https://youtu.be/djV11Xbc914) is their biggest hit (which also has an
+    extensive [WP article](https://en.wikipedia.org/wiki/Take_On_Me)). The video
+    for this version is noteworthy for its use of pencil-sketch animation
+    combining it with live-action
+      ([rotoscoping](https://en.wikipedia.org/wiki/Rotoscoping)).
 
 ### 1986
 
