@@ -100,6 +100,24 @@
 
 ## 1960s and 1970s
 
+### 1960
+
+* [Apache](https://en.wikipedia.org/wiki/Apache_(instrumental)) is a song
+  written by Jerry Lordan and first recorded by Bert Weedon. Lordan didn't like
+  [Weedon's interpretation](https://youtu.be/YSh9ET2xKOE) and played it on
+  ukulele to the band [The Shadows](https://en.wikipedia.org/wiki/The_Shadows).
+  They liked it and released their [own version](https://youtu.be/cjUwpXu_VUk).
+  Yes, national TV in the 60ies was wild. There's also the
+  [original](https://youtu.be/7TwULx_wDiI) black and white music video. Many
+  years later, my father gifted me his copy when I bought my first record
+  player. If that sparked your interest, there is a BBC4 programme [The Shadows
+  At Sixty](https://youtu.be/wdU5BsKdGCc) (59:45).
+
+### 1961
+
+* Ghost Riders in the Sky, performed by [Neil LeVang @ The Lawrence Welk
+  Show](https://youtu.be/huA9tMpiU7Y).
+
 ### 1964
 
   * [The Kinks](https://en.wikipedia.org/wiki/The_Kinks): Hailed as an
