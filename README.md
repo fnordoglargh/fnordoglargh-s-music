@@ -413,15 +413,9 @@ for his third solo album. On drums, on request, _Phil Collins_.
 From here we are going to explore different genres, potpourris and individual
 artists.
 
-* [How I first got into music](my_journey.md)
-* [1991 in rock (and beyond)](1991.md)
-* [German Lyrics](germany.md)
 * [Electronic music](electronic.md)
 * [Stay a While and Listen... and Have a Beer](stay_a_while.md)
 * [Alternative, Dark and Edgy](dark.md)
-* [Metal](metal.md)
-* [Hip hop](hip-hop.md)
-* [2000s](2000s.md)
 
 ### Alternative
 
